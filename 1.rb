@@ -6,5 +6,5 @@ DIS IS nikka fucker xxx
 COME AND GET IT!!!
 hoho master new change
 now i can add shit right
-paul getting down on tha floor xxx
+paul getting down on tha floor
 s club 47
